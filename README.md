@@ -1,2 +1,2 @@
 # vanity-swapper
-url sniper, vanity sniper, url swapper, vanity swapper
+bu boklu şeyi yalvararak alıp ardından salak salak yerlere vurmaya çalışan çocuklaaar
